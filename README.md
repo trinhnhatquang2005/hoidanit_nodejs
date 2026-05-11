@@ -1,1 +1,0 @@
-Tôi là Trịnh Nhật Quang đang test github mcp
